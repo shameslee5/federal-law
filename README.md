@@ -1,1 +1,3 @@
 # federal-law
+What is the right of appeal?
+An appeal is a right created by legislation to apply to a higher court to determine whether a decision of a lower court was correct, as described above. There are other forms of review that may achieve similar results to an appeal.Any person or [federal apeal lawyer](https://www.brownstonelaw.com/federal-appeals/)aggrieved by any decision or order of the Appellate Tribunal, may, file an appeal to the Supreme Court within sixty days from the date of communication of the decision or order of the Appellate Tribunal, to him, on any one or more of the grounds specified in section 100 of the Code of Civil Procedure, 1908
